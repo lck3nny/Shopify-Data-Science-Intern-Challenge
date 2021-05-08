@@ -25,9 +25,12 @@
     skate portion of my shop. Here, I would source and sell collectable and limited runs of skateboard decks and 
     hardware. Sneakers and clothing would provide me with a steady income throughout the year, with skate sales 
     being focused on the summer months. Having a hugely in-depth knowledge of snowboards, I would supplement winter 
-    sales with sales of limited decks, boots, bindings and outerwear.
+    sales with sales of limited decks, boots, bindings and outerwear. With much of my buying and selling of streetwear
+    and snowboards being international, Shopify's ability to automatically calculate taxes and shipping rates would
+    be a real asset to my business. 
     
-    My store would sell both new and pre owned, limited and collectable snow, skate and streetwear items. 
+    My store would sell both new and pre owned, limited and collectable snow, skate and streetwear items at a premium.
+    We would ensure both quality and authentisity of items difficult to source and with limited availability.
 
 #### Any last thoughts? (ie. proud accomplishments, cool ideas, a joke, etc.) (200 word limit)
 
