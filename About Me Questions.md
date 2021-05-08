@@ -6,15 +6,14 @@
     I have been in charge of interview and hiring, staff training and discipline as well as running a social 
     media account. These additional responsibilities have come with no training or handover process, leaving 
     me to work things out as I go along. Taking on these extra tasks was a way of challenging myself in a role 
-    where I was feeling unfulfilled. Some mistakes were made during the hiring process, resulting rehiring and 
-    letting go of a team member who could not keep up with the technical knowledge required. We faced problems 
-    with how staff were disciplined differently by different supervisors, creating an unfair system. Although
-    requests were made to my superior, very little support was given. It was only when asking my Manager's Manager
-    for assistance that I was provided with a huge amount of support and direction with the problems we were facing
-    at our location. 
+    where I was feeling unfulfilled. However, my thirst for challenge went too far, too quickly, leaving me overwhelmed 
+    and unable to complete tasks to the high standard that I expect from myself. I made mistakes with hiring a candidate
+    who did not have enough technical skiing experience, resulting in a rehire. It was only after bringing my lack of training 
+    and amount of responsibilities to the attention of higher level managers, that I received the support I was looking for. 
     
     My mistake is not asking for help sooner. Fear and a sense of embarrassment prevented me from seeking help, yet 
-    I was able to be a better and happier employee once overcoming this hurdle. 
+    I was able to be a better and happier employee once overcoming this hurdle. Not to mention, management being
+    both understanding and compassionate.
 
 #### If you were to open a Shopify store, what would you sell and why (or tell us about your store if you have one!) (200 word limit)
 
